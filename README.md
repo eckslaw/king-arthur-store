@@ -1,3 +1,5 @@
+King Arthur CONQUEST OF THE CROWN is now available in the Microsoft Store as free Download. Please use the store-site for downloading!
+
 The computer game combines several elements: a static Game Map together with dynamic challenges in special windows, namely the Memory Challenge and the Video Challenge.
 
 The Memory Challenge primarily requires a keen sense of observation. The solution is entered by mouse clicks.
